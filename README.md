@@ -8,7 +8,7 @@
 
 <br>
 
-[![telegram-alerts-join-now-animation-vy7i86cunhc2tsvk](https://github.com/hegdepavankumar/VMware-Workstation-Pro-17-Licence-Keys/assets/85627085/fd79e514-376d-4d44-9d1a-48d74ae49930)](https://t.me/resourcehub1)
+!(https://pitch121.com/storage/2023/02/linkedin.gif)
 
 # Linkedin : [Click Here To Connect Me](https://www.linkedin.com/in/sumonpaul/)
 
