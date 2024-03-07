@@ -8,7 +8,7 @@
 
 <br>
 
-!(https://pitch121.com/storage/2023/02/linkedin.gif)
+![(https://pitch121.com/storage/2023/02/linkedin.gif)]
 
 # Linkedin : [Click Here To Connect Me](https://www.linkedin.com/in/sumonpaul/)
 
