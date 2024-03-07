@@ -762,7 +762,7 @@ These links will help you to download Linux Host & servers to eve-ng in the easi
 I've provided images from various vendors for practice. If you need anything else or have specific requests, please feel free to let me know here. I'm here to help!
 Please drop the message here if you have any queries!
 
-[Click Here](https://t.me/resourcehub1) 
+[Click Here](https://www.linkedin.com/in/sumonpaul/) 
 
 
 <br>
@@ -781,8 +781,3 @@ Please drop the message here if you have any queries!
 
 
  <!-- Support Me --> 
-
- 
-If you like what I do, maybe consider buying me a coffee 🥺👉👈
-
-<a href="https://www.buymeacoffee.com/hegdepavankumar" target="_blank"><img src="https://cdn.buymeacoffee.com/buttons/v2/default-red.png" alt="Buy Me A Coffee" width="150" ></a>
